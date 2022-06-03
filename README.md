@@ -7,5 +7,7 @@ This was another event where I took 5 hours to see what I could do and challenge
 Top Accomplishments:
 1. (I'll fill this out lates)
 
+*** more coming soon!!! Promise this is WAY too good not to fully showcase ***
+
 
 
