@@ -5,7 +5,7 @@ OMG I know I haven't gotten around to really showcasing this piece...but oh man 
 This was another event where I took 5 hours to see what I could do and challenge myself on what I'd been learning! These are the results
 
 Top Accomplishments:
-1. (I'll fill this out lates)
+1. (I'll fill this out later...Pinky swear)
 
 *** more coming soon!!! Promise this is WAY too good not to fully showcase ***
 
